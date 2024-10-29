@@ -1,2 +1,0 @@
-# introduction
-given by teacher
